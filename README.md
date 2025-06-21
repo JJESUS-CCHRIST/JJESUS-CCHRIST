@@ -42,7 +42,7 @@
 ![image](https://github.com/user-attachments/assets/a47043cd-de33-4673-bcc5-db70e1f0bcd5)
 
 
-![d8eab50641178e42937068c7c695066b-Photoroom](https://github.com/user-attachments/assets/504e737c-380d-4644-ad00-8a44801aebb5)
+
 
 
 
